@@ -7,6 +7,7 @@
 - 📫 How to reach me **avinashkr090502@gmail.com**
 
 - ⚡ Fun fact **pip install serenity**
+- ⚡ Fun fact **Messi>>>>>Ronaldo**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
